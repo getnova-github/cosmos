@@ -1,2 +1,2 @@
 # 🌌COSMOS🌌
-## Leting students reach for the stars!##
+## Leting students reach for the stars!
